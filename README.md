@@ -1,0 +1,1 @@
+# naver-ad-guide
